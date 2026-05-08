@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-FOLU870921HMCLRL01
+FOLU870921HMCLRL01
